@@ -15,3 +15,5 @@ A dança é uma das manifestações culturais mais presentes na Cidade do Saber.
 
 _**3. Teatro: criatividade e comunicação**_
   O teatro é uma importante ferramenta de formação cultural e social. Por meio das oficinas e apresentações, os alunos desenvolvem a comunicação, a criatividade, a confiança e a capacidade de trabalhar em grupo. O Teatro Cidade do Saber é considerado um dos maiores da Bahia e recebe espetáculos, eventos culturais e atividades educativas durante todo o ano. As apresentações teatrais ajudam a aproximar a comunidade da arte e proporcionam oportunidades para novos talentos se desenvolverem.
+
+_**4. Linguagens e Educação**_
